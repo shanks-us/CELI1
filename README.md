@@ -1,7 +1,7 @@
 <h1 align="center">𝙺𝙰𝚆𝙰𝙺𝙸²²7</h1>
 
 <p align="center">
-    <img alt="OVL" src="https://files.catbox.moe/6xlk10.jpg">
+    <img alt="OVL" src="https://files.catbox.moe/rb0a4f.jpg">
 </p>
 
 <p align="center">
